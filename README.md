@@ -1,4 +1,6 @@
 # LESSON2
-Maura
-Fatimə
-nasılsınız
+- Maura
+- Fatimə
+- nasılsınız
+- Leylaaaaa 
+- derslik 
